@@ -44,7 +44,7 @@
 
 **[👉 DOWNLOAD SOLAR 👈](https://linkvertise.com/6017714/cjaKm284qsVM?o=sharing)**
 
-> **Why Workink?** It helps support development. Complete a quick task to get the download link.
+> **Why Linkvertise?** It helps support development. Complete a quick task to get the download link.
 
 ---
 
